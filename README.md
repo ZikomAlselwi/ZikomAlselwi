@@ -81,10 +81,3 @@ API من (https://gnews.io)[https://gnews.io/)
 
 
 # المساهمون
-
-      
-      Division 120shahad fahad Alasmari  : 444806169
-    
-# معلومات الاتصال
-
-رقم الهاتف : +966502313902
